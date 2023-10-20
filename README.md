@@ -1,0 +1,2 @@
+# FIJI
+FIJI WORLD PEACE Telegram Bot
